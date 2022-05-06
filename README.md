@@ -1,7 +1,7 @@
 if you're seeing this thats means your most probably from ponytown 
            Hi im Neptune or just Nep! 
 					        {Info⇊}
-						i have body dysmorphia so please be mindful.
+						i have body dysmorphia so please be mindful. I have severe anxiety. (When im using comfort skins its been a really bad day and just need to relive stress)
 					
 ↳ I DO NOT have DID but do have friends that do so please be mindful ^^
                   (DNI IF)-
