@@ -25,9 +25,11 @@ when i feel overwhelmed (sometimes not always) i will use some of the following 
 
 Karl
 
-Niki
+Dream
 
 Bbh
+
+Jinx
 
 Ghostbur
 
