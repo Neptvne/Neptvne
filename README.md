@@ -11,7 +11,7 @@ Please be aware that i have friends that have TD, DID, and others. please respec
 
 ☁️Some basic DNI and INT list☁️
 
-٩(ˊᗜˋ*)و INT if you're into Dsmp, fnaf, genshin, cookie run kingdom, im fine with any fandom as long as you arent toxic!
+٩(ˊᗜˋ*)و INT if you're into Dsmp, fnaf, genshin, cookie run kingdom, WC, im fine with any fandom as long as you arent toxic!
 
 ^-.-^J DNI If You dox, are toxic (to anyone outside your fandom), Do not respect name tags such as DNT, DNI, TT, etc. 
 
@@ -26,6 +26,8 @@ when i feel overwhelmed (sometimes not always) i will use some of the following 
 Karl
 
 Dream
+
+Crumb
 
 Bbh
 
