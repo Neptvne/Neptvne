@@ -11,9 +11,9 @@ Please be aware that i have friends that have TD, DID, and others. please respec
 
 ☁️Some basic DNI and INT list☁️
 
-٩(ˊᗜˋ*)و INT If you like dsmp, Fnaf, you arent toxic im fine with genshin & cookie run people just be kind and there will be no problem ^^
+٩(ˊᗜˋ*)و INT if you're into Dsmp, fnaf, genshin, cookie run kingdom, im fine with any fandom as long as you arent toxic!
 
-^-.-^J DNI If You dox, are toxic, Do not respect name tags such as DNT, DNI, TT, etc.
+^-.-^J DNI If You dox, are toxic (to anyone outside your fandom), Do not respect name tags such as DNT, DNI, TT, etc. 
 
 ![images](https://user-images.githubusercontent.com/104800999/174871611-289df4f6-7ccb-4d28-8ba4-0db5ac429fae.jpg)
 
