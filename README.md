@@ -3,6 +3,10 @@
 
 -`ღ´-Hello! I am Neptune or Nep! I use any pronouns!-`ღ´-
 
+Im ok with insperation from my skins aslong as you ask!!
+           
+           And its not a full copy!!
+
 ![download](https://user-images.githubusercontent.com/104800999/174867794-adeecf12-efd2-463c-b5cb-4bb3f6bc46b1.jpg)
 
 ☆.。.:*・°☆.。.:*・°☆.。.:*・°☆.。.:*・°☆
